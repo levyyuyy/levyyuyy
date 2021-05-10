@@ -1,5 +1,5 @@
 - Hi, I’m @levyyuyy and
-im from Brazil, mates.
+im from Brazil.
 
 
 
